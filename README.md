@@ -4,7 +4,24 @@
 
 ### A Short Biopic on FMA
 
+Sidney, London, horses, Shakespeare. His brother's accident and recovery. His own demateration.
+
 #### On the matter of his brother
+
+There was an infamous junction in which a grave injury was inflicted upon FMA's brother, GA (?). As he recovered throughout the next few months, all he could do was what I now have learned to call "Inhibition". One might even come to believe that this is entirely what matters about the Alexander Technique.
+
+## On the matter of Inhibition
+
+The concept as conceived by Freud, in his own context and work territory. The concept as described/discovered by FMA.
+
+Also:
+
+- [a seemingly cool PDF on it;](https://www.alexandertechniquescience.com/wp-content/uploads/2021/04/AJ28_Patrick-Johnson_The-Science-of-Inhibition-and-End-gaining_final-check.pdf)
+- [also, a website;](https://functionalawareness.org/fm-alexanders-principle-of-inhibition/)
+
+### Philosophy and the Post-Modern Concept Mill/Factory
+
+A processing plant of information: a terrain with entrances, exits, inner roads and railways, as well as a kernel comprised of an assembly line.
 
 ### What is a session with an Alexander teacher?
 
@@ -18,7 +35,11 @@ As one might guess, the explanation of what has just perspired in that time cert
 
 #### How do I find an Alexander teacher?
 
+There are websites, yes. It has become much easier nowadays. However, I do not live in one of the largest centers, and therefore have had to look a little harder.
+
 ##### Mediumship in France
+
+Verboten. Forbidden. Proibido. 禁止.
 
 #### On the Subject of Peoples and Persons
 
@@ -43,7 +64,15 @@ We are currently on the verge of the monopoly trial for the separation of Google
 
 ## Education and High-Paying Jobs in Economies
 
+### Nietzsche, myself and I: Ecce homo
+
+
+
+### Privacy Concerns, as per Akasha
+
 ### The Data, Big Data and Useless (Non-Revenue) Data
 
 ## Wisdarecism
+
+### Intentionality, 
 
