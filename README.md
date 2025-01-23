@@ -12,7 +12,7 @@ I am quite unclear on how to actually present the Alexander Technique to a perso
 
 An example:
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nsr2zHH0Dfg?si=JvHFk3LjCtXHCngx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+[![find it here](https://img.youtube.com/vi/nsr2zHH0Dfg/0.jpg)](https://www.youtube.com/watch?v=nsr2zHH0Dfg)
 
 As one might guess, the explanation of what has just perspired in that time certainly cannot fit anywhere but in a discourse by a clown.
 
