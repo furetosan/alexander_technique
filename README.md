@@ -8,6 +8,14 @@
 
 ### What is a session with an Alexander teacher?
 
+I am quite unclear on how to actually present the Alexander Technique to a person. As a matter of fact, I have come to be quite convinced that the actuality of what a session is will eventually come to be seen as one of the most fundamental cornerstones of human relations and relationships.
+
+An example:
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nsr2zHH0Dfg?si=JvHFk3LjCtXHCngx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+As one might guess, the explanation of what has just perspired in that time certainly cannot fit anywhere but in a discourse by a clown.
+
 #### How do I find an Alexander teacher?
 
 ##### Mediumship in France
