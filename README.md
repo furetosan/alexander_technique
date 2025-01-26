@@ -2,6 +2,12 @@
 
 ## What is the Alexander Technique
 
+"Much higher level of functioning"
+
+"Much less than usual"
+
+One of the perks or main talking points is the fact that one can actually learn how to bring oneself back towards this specific state of mind, or homeostatic stationary state of equilibrium for the bodymind.
+
 ### A Short Biopic on FMA
 
 Sidney, London, horses, Shakespeare. His brother's accident and recovery. His own demateration.
