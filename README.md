@@ -86,5 +86,5 @@ We are currently on the verge of the monopoly trial for the separation of Google
 
 ## Wisdarecism
 
-### Intentionality, 
+### Intentionality, Agency
 
