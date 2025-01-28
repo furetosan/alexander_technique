@@ -82,6 +82,8 @@ We are currently on the verge of the monopoly trial for the separation of Google
 
 ### Privacy Concerns, as per Akasha
 
+An unconventional concept within the regal sciences, but that is quite well-known as far as some mistics are concerned. The Akashic records are said to contain full information on all that has ever happened.
+
 ### The Data, Big Data and Useless (Non-Revenue) Data
 
 ## Wisdarecism
